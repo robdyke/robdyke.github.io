@@ -2,7 +2,8 @@
 date: '2021-08-18'
 title: Responsible Disclosure - Part 2
 authors: [ robdyke ]
-categories: disclosure
+slug: responsible-disclosure-2
+categories: Disclosure
 tags: null
 draft: true
 ---
