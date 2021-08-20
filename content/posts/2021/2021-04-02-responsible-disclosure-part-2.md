@@ -16,7 +16,7 @@ There was a hiatus in the correspondence from Apperta's lawyers while the cyber 
 
 It was the threat of an Injuncion that really knocked me. I couldn't sleep. I ate too little. I lost weight. I took time off from work. What was initially a distraction had mushroomed. I felt consumed. 
 
-Costs ran to high. The generous support of friends old and new to the GFM covered two-thirds of these. I spent all the savings I had. I still owe my lawyers several thousand.
+Costs ran high. The generous support of friends old and new to the GFM covered two-thirds of these. I spent all the savings I had. I still owe my lawyers several thousand.
 
 Those around me were affected too, my family life suffered. The anxiety and stress of dealing with legal proceedings contributed to the breakup of my relationship.
 
